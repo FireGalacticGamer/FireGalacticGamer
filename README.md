@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FireGalacticGamer
 - 👀 I’m interested in coding and am new too it.
-- 🌱 I’m currently learning html,c++ and java script.
+- 🌱 I’m currently learning html,css and java script.
 - 📫 How to reach me:- Message or friend me on discord:- |🔥|-FireGalactic_Gamer-|🔥|™#0369
 - 🔴 I used to be a minecraft bedwars youtuber with 70 subs(Not uploading currently)
 - 🌟 I wish to be a game dev or a youtuber
